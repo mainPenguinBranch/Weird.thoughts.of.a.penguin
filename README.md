@@ -1,5 +1,5 @@
 # Weird.thoughts.of.a.penguin
-Weird thoughts of a penguin 
+
 Have you ever wondered what happened to your missing pets? Like… where they might be? Are they alive? Or was it all just acting?
 
 Just imagine—what if your pets were actually spies for aliens? What if they were studying us all along? Would you believe it?
